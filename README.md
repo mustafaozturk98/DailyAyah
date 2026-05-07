@@ -1,0 +1,2 @@
+# DailyAyah
+privacy policy
